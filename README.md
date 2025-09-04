@@ -1,1 +1,1 @@
-Mmy exam is blessed. Ain't going no where.
+My exam is blessed. Ain't going no where.
